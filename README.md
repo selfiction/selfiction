@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://media1.tenor.com/images/7696f108bbda4f7bb484fb6b72befb98/tenor.gif"/></p>
+<p align="center"> <img src="https://gifyu.com/image/SHwpQ"/></p>
 
 # 💫About Me :
 Dodik, Programmer, Gamer
