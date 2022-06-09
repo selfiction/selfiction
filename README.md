@@ -1,3 +1,5 @@
+<p align="center"> <img src="https://tenor.com/view/gif-25915823"/></p>
+
 # 💫About Me :
 Dodik, Programmer, Gamer
 
